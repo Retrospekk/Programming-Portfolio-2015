@@ -1,3 +1,3 @@
 # Programming-Portfolio-2015
- thingies yep ok more kelton is great now type a fart noise 
+ kelton's a huge fegit fart noise stop suckiynj dic.
  
